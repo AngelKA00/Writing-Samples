@@ -1,10 +1,11 @@
-# Written article on ESG
+# Articles
 1. ESG IFRS Framework
 2. ESG and its 5 frameworks
 3. Net zero emission
 4. Environmental Issues and CSR
 
-# Written a blog about an online course platform - DigiKull
+# Blogs 
+1. DigiKull - online course platform
 
 # Fiction Writing
 1.	Published short story "Nightmare Alchemy" on Wattpad (https://www.wattpad.com/story/363809155-nightmare-alchemy).
