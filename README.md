@@ -3,6 +3,7 @@
 2. ESG and its 5 frameworks
 3. Net zero emission
 4. Debunking Myths about Tea
+5. The Transformative Power of AI in Everyday Lives
 
 # Blogs 
 1. DigiKull - online course platform
