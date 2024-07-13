@@ -10,6 +10,9 @@
 2. Environmental Issues and CSR
 3. Countries Achieving Net Zero Emissions by 2030
 
+# e-magazines
+1. Seoul - The heart of Hommies (Travel magazine)
+
 # Fiction Writing
 1.	Published short story "Nightmare Alchemy" on Wattpad (https://www.wattpad.com/story/363809155-nightmare-alchemy).
 
