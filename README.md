@@ -9,6 +9,7 @@
 1. DigiKull - online course platform
 2. Environmental Issues and CSR
 3. Countries Achieving Net Zero Emissions by 2030
+4. The Satyam Scandal A Deep Dive into India's Biggest Corporate Fraud
 
 # e-magazines
 1. Seoul - The heart of Hommies (Travel magazine)
