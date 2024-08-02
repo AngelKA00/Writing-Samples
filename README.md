@@ -10,6 +10,9 @@
 2. Environmental Issues and CSR
 3. Countries Achieving Net Zero Emissions by 2030
 4. The Satyam Scandal A Deep Dive into India's Biggest Corporate Fraud
+5. 10 Creative Ideas for Business Cards
+6. Mastering Foil Printing: A Simple Guide to Hot and Cold Techniques
+7. Exploring Digital Foiling: An affordable alternative to traditional techniques
 
 # e-magazines
 1. Seoul - The heart of Hommies (Travel magazine)
