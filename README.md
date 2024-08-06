@@ -12,8 +12,6 @@ K-Drama Blogs: https://fairyangel2.wordpress.com
 Fiction Story:
 Nightmare Alchemy: https://www.wattpad.com/story/363809155-nightmare-alchemy
 
-Creative Projects:
-A Glimpse of a Lab Day
-Seoul - The heart of Hommies
+
 
 
