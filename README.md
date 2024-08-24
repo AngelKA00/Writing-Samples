@@ -5,7 +5,7 @@ Feel free to explore and see how I approach different subjects, each with its un
 
 📚 Explore More of My Work:
 
-Medium: https://medium.com/@angel.jayam
+Medium: https://medium.com/@passion_ate_author
 
 K-Drama Blogs: https://fairyangel2.wordpress.com
 
